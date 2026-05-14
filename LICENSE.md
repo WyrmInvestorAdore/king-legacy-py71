@@ -1,4 +1,4 @@
-#  
+#  king legacy Scripts elite offers the most advanced king legacy Script, with silent aim and no clip. Perfect for dominating any match.
 
 
 
